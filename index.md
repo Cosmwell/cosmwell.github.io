@@ -5,4 +5,4 @@ CosMwell(Foshan) IMP&EXP CO.,LTD was incorporated on 6-JUN-2021 as a Private com
 
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://cosmwell.com/) or [contact support](i@cosmwell.com) and we’ll help you sort it out.
+Having trouble with Pages? Check out our [documentation](http://cosmwell.com/) or [contact support](i@cosmwell.com) and we’ll help you sort it out.
